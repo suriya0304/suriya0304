@@ -1,4 +1,5 @@
 ### Hi there 👋
+How to reach me: GMAIL | [TWITTER](https://twitter.com/suriya0304/) | [LINKEDIN](https://www.linkedin.com/in/suriya-k-b416051b7/)
 
 <!--
 **suriya0304/suriya0304** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
